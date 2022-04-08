@@ -1,1 +1,1 @@
-# Attack_on_the_cyborg_chicken Onely for mac
+# Attack_on_the_cyborg_chicken Onely on mac
